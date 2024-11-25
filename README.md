@@ -1,4 +1,4 @@
-**Career Path Checkpoint 🚀**
+**Career Path 🚀**
 
 I am excited and confident to step forward in my career path after completing this Bootcamp. The knowledge and skills I've acquired have strengthened my technical and problem-solving abilities, making me well-prepared for real-world challenges. My commitment to continuous learning and professional growth drives my readiness for new opportunities.
 
